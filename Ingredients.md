@@ -1,0 +1,16 @@
+Pasta :
+Water- 6 cup,
+Salt- 2 tsp,
+Pasta- 2 cup,
+Oil- 2 tsp,
+Garlic- 3 clove,finely,chopped,
+Onion- half,chopped,
+Carrot- half,chopped, 
+Capsicum- half,chopped, 
+Sweet Corn- 3 tsp,
+Pepper- 1 tsp,crushed,
+Butter- 2 tsp,
+Maida- 3 tsp,
+Milk- 2 cup,
+ChilliFlakes- 1/2 tsp,
+Mixed Herbs- 1/2 tsp;
